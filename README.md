@@ -12,6 +12,6 @@
 
 我的QQ讨论群：728661815
 
-我的淘宝小店：miiboo机器人
+我的淘宝小店（miiboo机器人）：https://shop148541716.taobao.com/
 
 我的电子邮箱：robot4miiboo@163.com
